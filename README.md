@@ -1,1 +1,0 @@
-# cooginitve_computing
